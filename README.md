@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tayoadefila08 aka teewrites
 - 👀 I’m interested in everything creative
-- 🌱 I’m currently studying CS in Babcock University, Nigeria
+- 🌱 I’m currently studying CS at Babcock University, Nigeria
 - 💞️ I’m looking to gain more soft skills (still a tech baby =3)
 - 📫 How to reach me ... tayoadefla08@gmail.com
 - ⚡ Fun fact: My gwaragwara kills!!
