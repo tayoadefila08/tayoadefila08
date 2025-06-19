@@ -3,7 +3,7 @@
 - 🌱 I’m currently studying CS at Babcock University, Nigeria
 - 💞️ I’m looking to gain more soft skills (still a tech baby =3)
 - 📫 How to reach me ... tayoadefla08@gmail.com
-- ⚡ Fun fact: My gwaragwara kills!!
+- ⚡ Quite the lover of good literature
 
 <!---
 tayoadefila08/tayoadefila08 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
